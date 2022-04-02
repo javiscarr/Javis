@@ -8,9 +8,9 @@ I'm a 2012 graduate of Alabama A&M University where I majored in Industrial Tech
 
 🥁 I used to play drums when I was younger and I'm sure I still can
 
-📺 When I'm not flying, I enjoy being home watching tv catching up on tv series
+📺 When I'm not flying, I enjoy being home catching up on tv series
 
-🐶 I have spoiled little yorkie that I adore
+🐶 I have a spoiled little yorkie that I adore
 
 🔰 Feel free to learn learn a little more about me and what I'm currently working on by visiting [My Portfolio](file:///C:/Users/javis/Desktop/Georgia%20Tech%20Bottcamp/Advanced-CSS-Portfolio/index.html#myGallery)
 
